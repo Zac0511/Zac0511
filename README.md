@@ -17,6 +17,6 @@ My favorite game is [Minecraft](https://www.minecraft.net/about-minecraft)
 I also helped on [Puter](https://github.com/HeyPuter/puter)'s translation.
 
 ***
-And if you want to donate money for some reason : https://paypal.me/Zac0511
+And if you want to donate money for some reason : https://www.paypal.com/donate/?hosted_button_id=HRDGXP8XWTW6N
 
 But honestly i don't think you should waste your money for me.
