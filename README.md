@@ -6,11 +6,9 @@
 
 I do some little apps, or games, or Minecraft mods, and other things
 
-Also i'm bi, and i'm a catboy, nya :3
-
-And I consider myself stupid, like, very stupid.
+Also i'm bi, and i'm a femboy, nya :3
 ***
-I have a [website](https://sites.google.com/view/zac0511) (its in french, but you can translate it with a recent browser), and you can download my games on my [GameJolt profile](https://gamejolt.com/@Zac0511)
+I have a [website](https://zac0511.puter.site), and you can download my games on my [GameJolt profile](https://gamejolt.com/@Zac0511)
 
 My favorite game is [Minecraft](https://www.minecraft.net/about-minecraft)
 
