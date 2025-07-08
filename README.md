@@ -6,7 +6,7 @@
 
 I do some little apps, or games, or Minecraft mods, and other things
 
-Also i'm bi, and i'm a femboy, nya :3
+Also i'm omnisexual, and i'm a femboy, nya :3
 ***
 I have a [website](https://www.zac0511.com), and you can download my games on my [GameJolt profile](https://gamejolt.com/@Zac0511)
 
