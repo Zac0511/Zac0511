@@ -1,4 +1,4 @@
-# Hi, i'm Zac0511
+# Hai, i'm Zac0511 :3
 
 ![GitHub User's stars](https://img.shields.io/github/stars/Zac0511?style=flat&logo=github&label=Stars) ![GitHub followers](https://img.shields.io/github/followers/Zac0511?style=flat&logo=github&label=Followers)
 
