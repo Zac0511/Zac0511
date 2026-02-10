@@ -8,4 +8,6 @@ I do some little apps, or games, or Minecraft mods, and other things
 
 Also i'm omnisexual, and i'm a femboy, nya :3
 
+![Metrics](/github-metrics.svg)
+
 [![Discord Presence](https://lanyard.cnrad.dev/api/790502488011964416)](https://discord.com/users/790502488011964416)
