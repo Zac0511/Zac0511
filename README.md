@@ -9,11 +9,9 @@ I do some little apps, or games, or Minecraft mods, and other things
 Also i'm omnisexual, and i'm a femboy, nya :3
 
 > [!warning]
-> I am currently moving all my active projects to my [Gitlab account](https://gitlab.com/Zac0511).
+> Some of my repos are on my [Gitlab account](https://gitlab.com/Zac0511).
 >
-> Archived repos will not be transferred.
->
-> Some of my repos have already been transfered, so if you dont find one here, check my Gitlab.
+> But new stuff will be here because GitHub has more features (even tho i'd like to stay on GitLab since i dont like Microsoft, and GitHub is owned by Microsoft)
 
 ![Metrics](/github-metrics.svg)
 
