@@ -14,5 +14,3 @@ Also i'm omnisexual, and i'm a femboy, nya :3
 > But new stuff will be here because GitHub has more features (even tho i'd like to stay on GitLab since i dont like Microsoft, and GitHub is owned by Microsoft)
 
 ![Metrics](/github-metrics.svg)
-
-![Discord Status](https://discord.c99.nl/widget/theme-1/790502488011964416.png)
