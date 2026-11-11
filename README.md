@@ -4,8 +4,9 @@
 
 [![Static Badge](https://img.shields.io/badge/Visit_my-website-blue?logo=googlechrome&logoColor=white)](https://zac0511.com)
 
-I do some little apps, or games, or Minecraft mods, and other things
-
 Also i'm omnisexual, and i'm a femboy, nya :3
 
-![Metrics](/github-metrics.svg)
+>[!WARNING]
+>I do not use GitHub for my personnal projects, as GitHub is owned by Microsoft, and i do not like Microsoft.
+>
+>Please go on my [GitLab](https://gitlab.com/Zac0511) instead.
